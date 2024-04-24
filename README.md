@@ -12,6 +12,7 @@ Email me at errorstream@amequus.com for business inquiry.
 # 🗞 Contacts:
 
 - [itch.io profile](https://errorstream.itch.io)
+- [ArtStation profile](https://www.artstation.com/errorstream)
 - Email: errorstream@amequus.com
 
 ---
