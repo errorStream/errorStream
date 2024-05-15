@@ -13,6 +13,7 @@ Email me at errorstream@amequus.com for business inquiry.
 
 - [itch.io profile](https://errorstream.itch.io)
 - [ArtStation profile](https://www.artstation.com/errorstream)
+- [Linkedin profile](https://www.linkedin.com/in/traver-d-48619673)
 - Email: errorstream@amequus.com
 
 ---
